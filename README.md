@@ -1,1 +1,1 @@
-There are labs from course of ASD
+There are labs from course of ASD of 1th semester
